@@ -1,1 +1,0 @@
-# kronixmc.net.autor
